@@ -51,6 +51,8 @@ GoLogin has rapidly emerged as one of the most cost-effective anti-detect browse
 **🔥 EXCLUSIVE DEAL:**  
 50% OFF on ALL Annual Plans! No code needed – just choose annual billing.
 
+[![GoLogin Coupon](https://res.cloudinary.com/drzqec0oi/image/upload/v1747222600/GoLogin_Coupon_olitza.jpg)](https://go.gologin.com/affinco-HFJJMGB)
+
 **Perfect For:** Affiliate marketers, social media managers, and anyone looking for a powerful yet affordable anti-detect solution.
 
 ---
